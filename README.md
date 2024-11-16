@@ -1,1 +1,1 @@
-![Thumbnail template web ecommerce 72](https://github.com/user-attachments/assets/7eeb543b-a553-49af-926d-6c88b4e60060)
+![Thumbnail template web ecommerce 72](https://github.com/user-attachments/assets/dcdac9ec-ebe1-469b-9b4e-2a648a372830)
